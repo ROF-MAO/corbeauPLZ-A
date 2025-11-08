@@ -17,5 +17,5 @@ _🥀 from crk_
 
 _lts fav: WAWU,Hi3,R1999,ORV_
 
-![IMG_20241217_141901](https://github.com/user-attachments/assets/9a8eeb92-59c9-4ead-a6c5-0e95cd42105c)
-*thank you🥀🥀 :3*
+![IMG_20251108_211918](https://github.com/user-attachments/assets/b4dc255c-db6e-40f4-a987-5546f5bbb717)
+*oh lts ver my brother | thank you🥀🥀 :3*
