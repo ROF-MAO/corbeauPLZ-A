@@ -2,10 +2,10 @@ _l’m Keisha nice meet🍬🧁 { she/her }_
 
 *C + h | INT*
 
-_hii guys Welcome back emu..._
+_hii guys Welcome back WUWA..._
 
-![IMG_20251107_110425](https://github.com/user-attachments/assets/309fd53d-7c0d-4cac-a3c4-c65ec8886db7)
-_mmmm? Yuri lesbian✨ 🍬🧁 & 🥝🌷!_
+![IMG_20251110_124548](https://github.com/user-attachments/assets/62deeb77-8110-4801-a16b-2fd08e587ffa)
+_mmmm? Yuri lesbian✨_
 
 ![IMG_20251107_110447](https://github.com/user-attachments/assets/63f6d339-94c8-4986-8543-71525ffd7977)
 _oh lts my kamioshi🌂🕸️ | my friends🩷_
