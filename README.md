@@ -18,5 +18,11 @@ _🥀 from crk_
 
 _lts fav: WAWU,Hi3,R1999,ORV_
 
+![IMG_20251113_211737](https://github.com/user-attachments/assets/09e189cc-0884-455a-b99e-85cf0b60948c)
+![IMG_20251113_211811](https://github.com/user-attachments/assets/9f77966f-9dad-4ea8-848a-ee3434e342b1)
+*YOUR YAOI <3*
+
+*from NIJI EN Noctyx :>*
+
 ![IMG_20251108_211918](https://github.com/user-attachments/assets/b4dc255c-db6e-40f4-a987-5546f5bbb717)
 *oh lts ver my brother | thank you🥀🥀 :3*
