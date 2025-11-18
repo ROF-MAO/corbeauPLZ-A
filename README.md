@@ -16,7 +16,7 @@ _🥀 from crk_
 
 *lts fandom: UMA,CRK PTN*
 
-_lts fav: WAWU,Hi3,R1999,ORV_
+_lts fav: WAWU,Hi3,R1999,ORV,bl manhwa_
 
 ![IMG_20251113_211737](https://github.com/user-attachments/assets/09e189cc-0884-455a-b99e-85cf0b60948c)
 ![IMG_20251113_211811](https://github.com/user-attachments/assets/9f77966f-9dad-4ea8-848a-ee3434e342b1)
