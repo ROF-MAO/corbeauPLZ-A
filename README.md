@@ -26,5 +26,6 @@ _lts fav: WAWU,Hi3,R1999,ORV,bl manhwa_
 ![IMG_20251118_184555](https://github.com/user-attachments/assets/b8b157f8-8968-4c17-96bc-546d8f0212a1)
 from medlist <3
 
-![IMG_20251108_211918](https://github.com/user-attachments/assets/b4dc255c-db6e-40f4-a987-5546f5bbb717)
-*oh lts ver my brother | thank you🥀🥀 :3*
+![IMG_20251121_211513](https://github.com/user-attachments/assets/01266f75-64ba-4581-afa2-f12541ab55bf)
+
+*lts ROF-MAO | thank you🥀🥀 :3*
